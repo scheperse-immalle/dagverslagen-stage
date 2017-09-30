@@ -1,2 +1,2 @@
 # dagverslagen-stage
-Hier vindt u alle informatieve over mijn stagedagen bij het bedrijf Allphi
+Hier vindt u alle informatie over mijn stagedagen bij het bedrijf Allphi
