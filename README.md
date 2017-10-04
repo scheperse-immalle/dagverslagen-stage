@@ -10,3 +10,8 @@ De lunchpauze duurde een halfuur. Dan ga je eten in de cafetaria samen alle ande
 ## Dinsdag 4 oktober 2017
 
 Vandaag was er geen groepsbespreking aangezien er maar 4 programmeurs aanwezig waren. Ik had een meeting met mijn 2 stagebegeleiders; Dirk Aerts en Dayinka Gilot, in verband met mijn stagetaken en waar ik wel of niet foto's van mag trekken. Ook hebben we samen beslist dat mijn casestudy een analyse over de communicatie met het bedrijf in Westerlo (waar ik zit) en Gent zal worden. De communicatie loopt vaak mis tussen de twee bedrijven en de oorzaak ga ik met de analyse proberen te achterhalen. Ook heb ik verder gewerkt aan mijn taak van Frans, de taak over de huisstijl van het bedrijf en de casestudy.
+
+## Woensdag 5 oktober 2017
+
+Er waren terug 7 programmeurs aanwezig, dus de dag begon met een groepsbespreking over hoe het ging met ieder zijn (vandaag waren het enkel mannelijke programmeurs) project. Rond elf uur mocht ik een Skypegesprek met collega's in Gent meevolgen in verband met mijn casestudy. De collega's in Gent waren zeer vriendelijk en behulpzaam. Daarna ging ik verder werken aan mijn casestudy rond de communicatie tussen het bedrijf in Westerlo en het bedrijf in Gent. Ik heb foto's getrokken van het bedrijfsgebouw 4 Wings (http://www.4wings.be/), het onthaal, waar een zeer lieve onthaalmedewerkster zit, van de cafetaria en van mijn werkplek. Alle programmeurs waren zelfstandig aan het werk en er was één programmeur die van het bedrijf in Gent kwam. Het was een leuke maar rustige dag.
+Vandaag heb ik gewerkt van 8:45 tot 16:30.
